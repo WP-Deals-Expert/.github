@@ -32,7 +32,7 @@ https://www.reddit.com/user/wpdealsexpert/
 
 https://github.com/wpdealsexpert
 
-wpdealsexpert.wordpress.com
+https://wpdealsexpert.wordpress.com
 
 https://wpdealsexpert.godaddysites.com/
 
